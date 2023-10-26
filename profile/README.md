@@ -1,6 +1,2 @@
 ## Hi there 👋
-
-<!--
-
-
-AAAAAAAAAAAAAA
+esse repositório serve para orar para jesus
