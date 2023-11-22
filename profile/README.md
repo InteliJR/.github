@@ -1,3 +1,3 @@
 ## Hi there 👋
-Prazer, somos o INTELIJR, uma empresa júnior federada criada no instituto de tecnologia e liderança.
+Prazer, somos a Inteli Júnior, uma empresa júnior criada no Instituto de Tecnologia e Liderança.
 
